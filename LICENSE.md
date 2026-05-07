@@ -1,4 +1,4 @@
-
+Experience ink game like never before with new ink game Script, the #1 Script. Includes unlimited stamina and one-hit kill for unbeatable performance.
 
 
 
